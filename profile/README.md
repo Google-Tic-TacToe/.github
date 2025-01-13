@@ -1,6 +1,6 @@
 # Google Tic-Tac-Toe: Play the Classic Game Online for Free 🎮❌⭕️
 
-[**Play Google Tic-Tac-Toe Now via Our Website!**](https://scriptrst.com/google-tic-tac-toe/)  
+[**Play Google Tic-Tac-Toe Now via Our Website!**](https://shorturl.at/cSGC3)  
 
 ---
 
@@ -20,12 +20,12 @@ Google Tic-Tac-Toe is an interactive online version of the timeless *Tic-Tac-Toe
 
 Playing Google Tic-Tac-Toe is as easy as searching for it! Follow these steps:  
 
-1. **Go to Our Website**: Visit [Google Tic-Tac-Toe](https://scriptrst.com/google-tic-tac-toe/) for quick access.  
+1. **Go to Our Website**: Visit [Google Tic-Tac-Toe](https://shorturl.at/cSGC3) for quick access.  
 2. **Type "Tic-Tac-Toe" on Google**: Use the instructions provided to locate the game.  
 3. **Start Playing**: The game interface will appear at the top of the search results. Choose your difficulty level or select the two-player mode.  
 4. **Have Fun**: Place your X or O strategically to win the game!  
 
-[**Play Google Tic-Tac-Toe Now via Our Website!**](https://scriptrst.com/google-tic-tac-toe/)  
+[**Play Google Tic-Tac-Toe Now via Our Website!**](https://shorturl.at/cSGC3)  
 
 ---
 
@@ -55,7 +55,7 @@ If you’re new to Tic-Tac-Toe or want to beat your opponents more often, follow
 
 Ready to try your skills? Click the button below to visit our website and start playing Google Tic-Tac-Toe for free:  
 
-[**Play Google Tic-Tac-Toe Here!**](https://scriptrst.com/google-tic-tac-toe/)  
+[**Play Google Tic-Tac-Toe Here!**](https://shorturl.at/cSGC3)  
 
 ---
 
